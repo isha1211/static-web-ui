@@ -1,0 +1,1 @@
+# static-web-ui![screencapture-file-C-Users-ishap-OneDrive-Desktop-demo-index-html-2023-01-03-13_35_04](https://user-images.githubusercontent.com/119684503/210319439-1007ce77-ec7a-4e77-bbbc-008ec116a24d.png)
